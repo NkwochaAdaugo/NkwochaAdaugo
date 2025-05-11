@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...(i don't have plans yet)
 - 📫 How to reach me :Via LinkedIn @Nkwocha Adaugo
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: 
+- ⚡ Fun fact: ....
 
 <!---
 NkwochaAdaugo/NkwochaAdaugo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
